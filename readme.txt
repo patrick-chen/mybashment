@@ -1,5 +1,5 @@
 Git is a distributed version control system.
 you are the best. 
-girls are waiting you.
+they are waiting you.
 creat a branch is quick.
 ISN IT fun?
