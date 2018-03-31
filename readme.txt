@@ -1,4 +1,5 @@
 Git is a distributed version control system.
 you are the best. 
 girls are waiting you.
-chun and xiang.
+creat a branch is quick.
+ISN IT fun?
